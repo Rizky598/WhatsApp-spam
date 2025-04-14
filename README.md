@@ -1,2 +1,3 @@
-# WhatsApp-spam
-Script termux spam fairing WhatsApp terbaru 2025 🎯💯
+# spambot
+# spambot
+# SPAM TAUTKAN PERNAGKAT VIA WHATSAPP
